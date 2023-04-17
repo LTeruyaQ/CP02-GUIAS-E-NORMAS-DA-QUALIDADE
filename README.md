@@ -1,0 +1,2 @@
+# CP02-GUIAS-E-NORMAS-DA-QUALIDADE
+Leandro Teruya de Queiroz RM:89134
